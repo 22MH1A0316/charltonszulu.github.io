@@ -6,4 +6,4 @@
 
 ## connect with me 👇
 
-linkendin : [linkendin](www.linkedin.com/in/charlton-zulu-897ab8270)
+linkendin : [linkendin](https://www.linkedin.com/in/charlton-zulu-897ab8270/)
