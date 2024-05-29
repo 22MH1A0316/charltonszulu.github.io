@@ -3,7 +3,8 @@
 ### **Mechanical Engineer(Major)**
 ### **Artificial Intelligence and Machine Learning(Minor)**
 
-![My profile phote](https://elearn.nptel.ac.in/wp-content/uploads/2024/05/shutterstock_256649974-scaled.jpg?v=c86ee0d9d7ed)
+![My profile phote]![image](https://github.com/22MH1A0316/charltonszulu.github.io/assets/170931699/7e8b3e82-a646-4b76-aca3-4212cd7f738c)
+)
 
 ## connect with me 👇
 
